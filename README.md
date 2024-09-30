@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kk123121
+- 👀 I’m interested in: cars, minibikes, dirtbikes, 4 whealers, and coding!
+- 🌱 I’m currently learning: C++ and C#
+- 💞️ I’m looking to collaborate on: anything!
+- 📫 How to reach me: through an email at kaidenjclaflin@gmail.com or through discord mrnuggetthe1st
+- 😄 Pronouns: he him
+- ⚡ Fun fact im a pro at band 🕶️
